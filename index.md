@@ -13,7 +13,7 @@ También puedes pedir el link a uno de los administradores [@davidsans](https://
 
 - La información del grupo es privada y si una persona comparte algo con el resto del grupo, queda prohibida su utilización sin consentimiento expreso. Queremos evitar malos rollos con otros grupos como ya ha sucedido en otras ocasiones.
 
-- En este grupo como en cualquier otro hay libertad de opinión, por lo tanto si algún comentario o alguna acción no te parecen correctos, puedes decirlo sin miedo. También puedes mencionar a cualquiera de los administradores con poniendo [@admin]((https://t.me/admin) dentro del grupo. Este aviso mandará una notificación a todos los administradores.
+- En este grupo como en cualquier otro hay libertad de opinión, por lo tanto si algún comentario o alguna acción no te parecen correctos, puedes decirlo sin miedo. También puedes mencionar a cualquiera de los administradores con poniendo [@admin](https://t.me/admin) dentro del grupo. Este aviso mandará una notificación a todos los administradores.
 
 - Queda prohibida cualquier falta de respeto a cualquier miembro del grupo. Esta norma es estricta, y llevará una expulsión inmediata del grupo. El baneo durará 24h. Si se reincide, conllevará un baneo definitivo.
 
