@@ -5,12 +5,17 @@ Aunque tod@s somos bienvenid@s al Offtopic de Pamplona, se agradece que respeté
 
 Este grupo es el **Offtopic de Pokémon Go de Pamplona**. Si quieres entrar al grupo, puedes pedir el link por el grupo general escribiendo: _Link grupo Offtopic_, y el **profesor Oak** te responderá con el link.
 Si lo prefieres, te dejo aquí el link [Tequila Rosa](https://telegram.me/joinchat/DAagwUOb_t-F7s0P9I-6JA)
+También puedes pedir el link a uno de los administradores [@davidsans](https://t.me/davidsans), [@socebar](https://t.me/socebar) y [@vienra1](https://t.me/vienra1)
 
-Que la información del grupo es privada y que queremos evitar malos rollos con otros grupos
+- El hecho de no haber leído las normas, no exime que no pueda haber un aviso/sanción correspodiente
 
+- No hay límite de edad, por lo que es de sentido común que no están permitidos los gifs y/o cualquier cotenido multimedia desagradable. (Pornográfico, gore, etc...)
 
-Y que hay que leer lo anclado debido a que puede ser importante y que no vale luego quejarse de las cosas y en el momento no das tu opinión
+- La información del grupo es privada y si una persona comparte algo con el resto del grupo, queda prohibida su utilización sin consentimiento expreso. Queremos evitar malos rollos con otros grupos como ya ha sucedido en otras ocasiones.
 
+- En este grupo como en cualquier otro hay libertad de opinión, por lo tanto si algún comentario o alguna acción no te parecen correctos, puedes decirlo sin miedo. También puedes mencionar a cualquiera de los administradores con poniendo [@admin]((https://t.me/admin) dentro del grupo. Este aviso mandará una notificación a todos los administradores.
+
+- Queda prohibida cualquier falta de respeto a cualquier miembro del grupo. Esta norma es estricta, y llevará una expulsión inmediata del grupo. El baneo durará 24h. Si se reincide, conllevará un baneo definitivo.
 
 Que está prohibido mandar indirectas y crear mal rollo con la gente del grupo
 
