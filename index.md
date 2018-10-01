@@ -17,6 +17,6 @@ También puedes pedir el link a uno de los administradores [@davidsans](https://
 
 - Queda prohibida cualquier falta de respeto a cualquier miembro del grupo. Esta norma es estricta, y llevará una expulsión inmediata del grupo. El baneo durará 24h. Si se reincide, conllevará un baneo definitivo.
 
-Que está prohibido mandar indirectas y crear mal rollo con la gente del grupo
+- Está prohibido mandar indirectas y crear mal rollo con la gente del grupo
 
-Pon que hacer filtraciones para crear al rollo es motivo de expulsión
+No somos estrictos, pero hay que cumplir un mínimo de convivencia para estar bien entre todos. Dicho esto, disfruta de tu estancia aquí, ¡y hazte con todos!
