@@ -9,7 +9,7 @@ También puedes pedir el link a uno de los administradores [@davidsans](https://
 
 - El hecho de no haber leído las normas ancladas, no exime que no pueda haber un aviso/sanción correspodiente.
 
-- No se permite la entrada a menores de 18 años, además no están permitidos los gifs y/o cualquier contenido multimedia desagradable. (Pornográfico, gore, etc...)
+- No se permite la entrada a **menores de 18 años**, además no están permitidos los gifs y/o cualquier contenido multimedia desagradable. (Pornográfico, gore, etc...)
 
 - La información del grupo es **privada** y si una persona comparte algo con el resto del grupo, queda **prohibida** su utilización sin consentimiento expreso. 
 Es decir, si por ejemplo se **comparte un plan en el grupo**, no se puede ir a otro grupo y copiar el plan sin ni siquiera hacer una **mención** al que ha dado la idea y/o **dar las gracias** por la idea.
