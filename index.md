@@ -18,7 +18,7 @@ Si ocurre esto y se sabe quién ha sido, será **expulsado directamente**.
 
 - En este grupo como en cualquier otro hay **libertad de opinión**, por lo tanto si algún comentario o alguna acción no te parecen correctos, puedes decirlo sin miedo. También puedes mencionar a cualquiera de los administradores poniendo [@admin](https://t.me/admin) dentro del grupo. Este aviso mandará una notificación a todos los administradores y te atenderán lo antes posible.
 
--Así mismo, el uso indebido de [@admin](https://t.me/admin) será sancionado; sólo debes usarlo para cosas importantes.
+- Así mismo, el uso indebido de [@admin](https://t.me/admin) será sancionado; sólo debes usarlo para cosas importantes.
 
 - Queda prohibida cualquier **falta de respeto** a cualquier miembro del grupo. Esta norma es estricta, y llevará una **expulsión inmediata** del grupo. El baneo durará 24h. Si se reincide, conllevará una **expulsión permanente**.
 
